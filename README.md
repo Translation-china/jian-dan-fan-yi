@@ -17,3 +17,5 @@ coverY: 0
 
 ## Disclaimer
 
+Solemnly declare: This work is only for personal appreciation and study, and the copyright belongs to the distribution company. No organization or individual may publicize it or use it for any commercial profit purpose, otherwise all consequences shall be borne by the organization or individual. This site and the producer do not assume any legal and joint liability!
+
