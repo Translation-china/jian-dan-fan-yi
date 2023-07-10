@@ -75,7 +75,271 @@ layout:
 
 #### 原文:
 
-The. The. B.b.c.learning English dot com presents. Talk about English, A series of radio features is support your English language studies. It's time for academic listening, a series for students at English speaking universities join Susan Fern and members of the Well service class of two thousand and one for more on the art of understanding a lecture. Today, we'll continue to look at a range of techniques to make listening easier. And we've also got an exercise to help develop your listening. It's easy. When you were listening to something very well structured. but when you go to lectures, people generally, they prepare to talk about the subject. They are not preparing the structure of the, the English, basically, then it's. It's difficult. In the last program, we thought about the purpose of lectures and suggested that understanding the aim of the lecture helps you to decide where to focus your attention. This is a useful skill because you can't concentrate on everything at once. We've also said that it's important to recognize how speakers organize their material. Typically, things are in three parts. Simon Williams teaches English in the Language Centre at University College London. There's a kind of introduction giving the purpose and background to the topic and the plan of the lecture. The body of the lecture in which examples are given, perhaps ideas outlined and contrasted. And then a conclusion in which the various ideas are evaluated. and perhaps the lecture gives their own opinion about which one is more valuable or useful in different ways. According to Simon Williams, most lectures follow a simple structure. They have a beginning, a middle and an end. Of these, the first section, the introduction is arguably the most important and. This is because it's where the speaker sets the scene and outlines the content of their talk. There may be a series of announcements before and after. The main part of the lecture. Now, around that structure, let's remember that this is a real event with human beings. With people involved. So there will usually be some kind of welcome, perhaps some announcements at the beginning in which the lecturer may make some jokes and people settle down, and at the end, some closing remarks, some kind of management talk in which the lecturer refers to the next meeting perhaps give some reading to be done and some advice on how to use the notes for further work. Anna from Brazil is studying architecture at the University of London. She is familiar with this kind of structure and agrees that the introduction provides useful clues to the speakers, particular standpoint. It also shows how they intend to develop the topic, during the lecture. They used to, uh, give an introduction of the terrestrial background. And how they are kind of managing to think and to conceptualize the problems they are. Discussing, and then they usually show. A couple of examples. And then they just go to a conclusion, Um, which is. Mainly, if the Redcoat. or even of the sort of the way people are occupying the space and helping the audience understand what they're talking about, and. What points are. It's a good idea then, to assume that your lecture will organize their talk in this way. Simon Williams says it's also useful to think about the content and structure of the lecture. from another point of view. He points out that most lecturers approach their material in one of three ways. In the first. the lecture presents a sequence of events in the order of happening. The most familiar to all our listeners, I think, will be chronological. That's rather like a biography or perhaps an autobiography. It's starting early on in time. Finishing late, perhaps, for example, telling somebody's life story. And in the same way, describing a process, how something works or how an experiment is conducted, also follows that chronological order through time. And we intuitively recognize that when we're reading or listening, and it's reassuring, we, we know what to expect. We can anticipate what's going to come next. Secondly, Simon Williams refers to the type of lecture where speakers look at different aspects of a topic or present a number of theories about it. There might be division of ideas, a kind of matrix. The lecturer might say, I'm going to talk about three things this morning. First, a country's tourism, then it's natural resources, and then it's service industry. So we know that we're going to have three main sections. A third common approach is to discuss a situation and its associated problems. Another very common way of organizing texts. both spoken and written, is the situation, problem, solution and evaluation format. For example, a situations such as the global spread of the English language is outlined. And then a problem is identified, such as the disappearance of smaller languages. Then a solution might be offered maybe to legislate against using this advancing language, against using English and making sure that the smaller local languages are used. And finally, an evaluation, some kind of assessment of this solution. Well, the solution is fine, but it costs money. And how can we stop the language coming in, It's on products. it's on television and so on. So that offers us a new problem. And the next step is to. A more refined solution, perhaps. And to evaluate that and, and so on, in a cyclical process. Now, here's a chance for you to do some listening practice. Replay your extracts from two lectures. In both cases, you'll hear the introduction, and I'd like you. quite simply, to identify which approach the lecturer is taking. The first lectures about politics in Britain. How does the speaker structure her talk. Okay, good afternoon, everybody. Today, I am going to lecture to you about politics in the Uk or the British system of. Now, parliament in theU.k.. actually has three parts. First of all. we have the queen or the monarch, Queen Elizabeth. So that's one part. Secondly, we have the House of Lords, and thirdly, we have the House of Commons. So those three together make up Parliament. The Queen, the House of Lords. the House of Commons. Okay, first of all, today I want to talk about the role of the monarch or the role of the queen. In the Uk. we have what's called a constitutional monarchy. The structure there is what Simon Williams calls division of ideas. The speaker intends to divide her talk into three sections, considering the roles, firstly, of the Queen, then of the House of Lords and finally of the House of Commons. Now, here's part of another lecture about urbanization, where countryside areas become more like towns. Which approach does the lecturer take? chronological division of ideas or situation, problem, solution. Today, I want to discuss problems of urbanization. In particular, I want to talk about those problems, which are peculiar to developing economies and to discuss three possible policies which could be used to control or to stem uncontrolled urbanization in developing countries. Well, the answer was to be found in the very first sentence. the speaker intends to discuss the problems of the situation, should cause urbanization. And she intends to comment on or evaluate three possible solutions to the problem. This is an example of the classic format situation, problem, solution and evaluation. So as you see, in each case. the speaker outlines the structure of the talk and the approach she intends to take, and. And knowing this in advance is useful for two reasons. It will help you to follow the different sections of the talk and, importantly, to identify the speaker's key points. Simon Williams again. Recognizing structures in that way will help the students to orientate themselves and to notice when to take down ideas and how to organize their notes, recognize the type of lecture. whether it's chronological or division of ideas or situation, problem, solution. evaluation is really useful in helping you to predict the content and the way that it's organized, the kind of content that's going to come. Anna, our student from Brazil, has another tip on how to find your way around a lecture. Well, I think most of the time when the letter is finishing, um, the in conclusion or these sort of markets are going to appear, they can use some this sort of war that lead you to. The introduction, and then to the main point, and then to the conclusion. You can understand when it is the end of introduction, when it's the end of the main point and when the conclusion is coming. Last time we heard about a number of ways in which speakers guide listeners through their talks. They can do this through their intonation and stress, and by using a number of marker phrases, which are like many announcements or sign posts within the lecture. These are important clues for the key points that you might want to note down. To make it easier for yourself when you're listening to lectures. if you don't want to write down everything, this note for what I call markers. in other words, little signals that the lecturer uses to show when they're reaching a key point or when they're about to begin a new section of the lecture. So again, they're like sign posts on a journey. They help you to know where you are. They help you to know what direction you're going. Marcus might be something like, right, okay. Now, the next thing I want to turn to is. And it's the. the information after those markers that you need to take down. So that will be the important information that is going to signal a new section or an important topic area. And that brings us to the end of today's program, in which we focused on the structure of lectures. We've discovered that knowing what the lecture is going to talk about, knowing when they're moving from one point to the next and when they're starting the individual sections of their lecture will help you understand it better. In the next program, we'll focus more closely on the important introductory section of the lecture that was talk about English fromb.b.c.learning English dot com.
+The.
+
+The.
+
+B.b.c.learning English dot com presents.
+
+Talk about English, A series of radio features is support your English language studies.
+
+It's time for academic listening, a series for students at English speaking universities join Susan Fern and members of the Well service class of two thousand and one for more on the art of understanding a lecture.
+
+Today, we'll continue to look at a range of techniques to make listening easier.
+
+And we've also got an exercise to help develop your listening.
+
+It's easy.
+
+When you were listening to something very well structured.
+
+but when you go to lectures, people generally, they prepare to talk about the subject.
+
+They are not preparing the structure of the, the English, basically, then it's.
+
+It's difficult.
+
+In the last program, we thought about the purpose of lectures and suggested that understanding the aim of the lecture helps you to decide where to focus your attention.
+
+This is a useful skill because you can't concentrate on everything at once.
+
+We've also said that it's important to recognize how speakers organize their material.
+
+Typically, things are in three parts.
+
+Simon Williams teaches English in the Language Centre at University College London.
+
+There's a kind of introduction giving the purpose and background to the topic and the plan of the lecture.
+
+The body of the lecture in which examples are given, perhaps ideas outlined and contrasted.
+
+And then a conclusion in which the various ideas are evaluated.
+
+and perhaps the lecture gives their own opinion about which one is more valuable or useful in different ways.
+
+According to Simon Williams, most lectures follow a simple structure.
+
+They have a beginning, a middle and an end.
+
+Of these, the first section, the introduction is arguably the most important and.
+
+This is because it's where the speaker sets the scene and outlines the content of their talk.
+
+There may be a series of announcements before and after.
+
+The main part of the lecture.
+
+Now, around that structure, let's remember that this is a real event with human beings.
+
+With people involved.
+
+So there will usually be some kind of welcome, perhaps some announcements at the beginning in which the lecturer may make some jokes and people settle down, and at the end, some closing remarks, some kind of management talk in which the lecturer refers to the next meeting perhaps give some reading to be done and some advice on how to use the notes for further work.
+
+Anna from Brazil is studying architecture at the University of London.
+
+She is familiar with this kind of structure and agrees that the introduction provides useful clues to the speakers, particular standpoint.
+
+It also shows how they intend to develop the topic, during the lecture.
+
+They used to, uh, give an introduction of the terrestrial background.
+
+And how they are kind of managing to think and to conceptualize the problems they are.
+
+Discussing, and then they usually show.
+
+A couple of examples.
+
+And then they just go to a conclusion, Um, which is.
+
+Mainly, if the Redcoat.
+
+or even of the sort of the way people are occupying the space and helping the audience understand what they're talking about, and.
+
+What points are.
+
+It's a good idea then, to assume that your lecture will organize their talk in this way.
+
+Simon Williams says it's also useful to think about the content and structure of the lecture.
+
+from another point of view.
+
+He points out that most lecturers approach their material in one of three ways.
+
+In the first.
+
+the lecture presents a sequence of events in the order of happening.
+
+The most familiar to all our listeners, I think, will be chronological.
+
+That's rather like a biography or perhaps an autobiography.
+
+It's starting early on in time.
+
+Finishing late, perhaps, for example, telling somebody's life story.
+
+And in the same way, describing a process, how something works or how an experiment is conducted, also follows that chronological order through time.
+
+And we intuitively recognize that when we're reading or listening, and it's reassuring, we, we know what to expect.
+
+We can anticipate what's going to come next.
+
+Secondly, Simon Williams refers to the type of lecture where speakers look at different aspects of a topic or present a number of theories about it.
+
+There might be division of ideas, a kind of matrix.
+
+The lecturer might say, I'm going to talk about three things this morning.
+
+First, a country's tourism, then it's natural resources, and then it's service industry.
+
+So we know that we're going to have three main sections.
+
+A third common approach is to discuss a situation and its associated problems.
+
+Another very common way of organizing texts.
+
+both spoken and written, is the situation, problem, solution and evaluation format.
+
+For example, a situations such as the global spread of the English language is outlined.
+
+And then a problem is identified, such as the disappearance of smaller languages.
+
+Then a solution might be offered maybe to legislate against using this advancing language, against using English and making sure that the smaller local languages are used.
+
+And finally, an evaluation, some kind of assessment of this solution.
+
+Well, the solution is fine, but it costs money.
+
+And how can we stop the language coming in, It's on products.
+
+it's on television and so on.
+
+So that offers us a new problem.
+
+And the next step is to.
+
+A more refined solution, perhaps.
+
+And to evaluate that and, and so on, in a cyclical process.
+
+Now, here's a chance for you to do some listening practice.
+
+Replay your extracts from two lectures.
+
+In both cases, you'll hear the introduction, and I'd like you.
+
+quite simply, to identify which approach the lecturer is taking.
+
+The first lectures about politics in Britain.
+
+How does the speaker structure her talk.
+
+Okay, good afternoon, everybody.
+
+Today, I am going to lecture to you about politics in the Uk or the British system of.
+
+Now, parliament in theU.k..
+
+actually has three parts.
+
+First of all.
+
+we have the queen or the monarch, Queen Elizabeth.
+
+So that's one part.
+
+Secondly, we have the House of Lords, and thirdly, we have the House of Commons.
+
+So those three together make up Parliament.
+
+The Queen, the House of Lords.
+
+the House of Commons.
+
+Okay, first of all, today I want to talk about the role of the monarch or the role of the queen.
+
+In the Uk.
+
+we have what's called a constitutional monarchy.
+
+The structure there is what Simon Williams calls division of ideas.
+
+The speaker intends to divide her talk into three sections, considering the roles, firstly, of the Queen, then of the House of Lords and finally of the House of Commons.
+
+Now, here's part of another lecture about urbanization, where countryside areas become more like towns.
+
+Which approach does the lecturer take?
+
+chronological division of ideas or situation, problem, solution.
+
+Today, I want to discuss problems of urbanization.
+
+In particular, I want to talk about those problems, which are peculiar to developing economies and to discuss three possible policies which could be used to control or to stem uncontrolled urbanization in developing countries.
+
+Well, the answer was to be found in the very first sentence.
+
+the speaker intends to discuss the problems of the situation, should cause urbanization.
+
+And she intends to comment on or evaluate three possible solutions to the problem.
+
+This is an example of the classic format situation, problem, solution and evaluation.
+
+So as you see, in each case.
+
+the speaker outlines the structure of the talk and the approach she intends to take, and.
+
+And knowing this in advance is useful for two reasons.
+
+It will help you to follow the different sections of the talk and, importantly, to identify the speaker's key points.
+
+Simon Williams again.
+
+Recognizing structures in that way will help the students to orientate themselves and to notice when to take down ideas and how to organize their notes, recognize the type of lecture.
+
+whether it's chronological or division of ideas or situation, problem, solution.
+
+evaluation is really useful in helping you to predict the content and the way that it's organized, the kind of content that's going to come.
+
+Anna, our student from Brazil, has another tip on how to find your way around a lecture.
+
+Well, I think most of the time when the letter is finishing, um, the in conclusion or these sort of markets are going to appear, they can use some this sort of war that lead you to.
+
+The introduction, and then to the main point, and then to the conclusion.
+
+You can understand when it is the end of introduction, when it's the end of the main point and when the conclusion is coming.
+
+Last time we heard about a number of ways in which speakers guide listeners through their talks.
+
+They can do this through their intonation and stress, and by using a number of marker phrases, which are like many announcements or sign posts within the lecture.
+
+These are important clues for the key points that you might want to note down.
+
+To make it easier for yourself when you're listening to lectures.
+
+if you don't want to write down everything, this note for what I call markers.
+
+in other words, little signals that the lecturer uses to show when they're reaching a key point or when they're about to begin a new section of the lecture.
+
+So again, they're like sign posts on a journey.
+
+They help you to know where you are.
+
+They help you to know what direction you're going.
+
+Marcus might be something like, right, okay.
+
+Now, the next thing I want to turn to is.
+
+And it's the.
+
+the information after those markers that you need to take down.
+
+So that will be the important information that is going to signal a new section or an important topic area.
+
+And that brings us to the end of today's program, in which we focused on the structure of lectures.
+
+We've discovered that knowing what the lecture is going to talk about, knowing when they're moving from one point to the next and when they're starting the individual sections of their lecture will help you understand it better.
+
+In the next program, we'll focus more closely on the important introductory section of the lecture that was talk about English fromb.b.c.learning English dot com.
 
 #### 译文:
 
@@ -85,7 +349,305 @@ The. The. B.b.c.learning English dot com presents. Talk about English, A series 
 
 #### 原文:
 
-The. The. B.b.c.learning English dot com presents. Talk about English, A series of radio features is support your English language studies. It's time for academic listening, a series for students at English speaking universities. Many students find that lectures are the most daunting aspect of their university life. In this program. we'll start to look at a range of techniques to make listening to lectures easier with presenter Susan Fern and members of the Bbc. Well, service class of two thousand and one. Taxes, quality of life and happiness. In this talk. I will first note a recent political emphasis on quality of life. Secondly, I will suggest that this contrasts with economic growth as a main or the main concern of government and with a view of the interview, like me, wished you'd had a certain chance to hear those university lectures. Taxes, quality of life and happiness. In this talk. I will first note a recent political emphasis on quality of life. Secondly, I will suggest. sadly, it's never quite like that in real life. You can reread a book. You can replay a cassette, but you can't rewind a lecturer. The main point of a lecture for students must be to acquire more information on a topic in a. Simon Williams teaches English in the Language Centre at University College London. Of course, they could get a photo copy from another student later, not bother to turn up. But it's one way of knowing how the subject is viewed. how it's considered by people in your department, whether it's thought to rather old fashioned, perhaps, or crucial and very, very modern. So it's seeing where it fits into the whole subject. Two of us. Lectures can be important. social occasions there. a chance to meet with the other students on your course. But they're also an important way of getting an overview of your subject or particular element of your course. This is something you may not be able to achieve through self study or by reading someone else's notes. University teachers also have specific aims and objectives, when they lecture. Simon Williams, again. The purpose of a lecture is probably to stimulate students in going to do work by themselves. The end result of a course must be to try to make a student autonomous so that they are happy in finding things out for themselves and not being given things that they accept uncritically. So learners need to know that that's the aim, the probable aim of the course of academic study that they'll be able to be individual learners and independent learners. So a lecturer will aim to present. perhaps as part of a topic and stimulate the student to want to find out more, and then maybe a very good reason to do that, if perhaps they've got to do a written assignment on that topic. So that's another reason for paying attention. But paying attention can only happen if you know what to pay attention to. One can't pay. Everything all at the same time. Understanding the any more purpose of the lecture helps you decide where to focus your attention. This is useful because you can't concentrate on everything at once. You may already be using large amounts of mental energy to cope with other problems. as these students can confirm. Actually, I think that there are difference not only in the problem of the accent. Or in the way of talking. But, uh, in the way in which the, the, the class is given, the lecture is, is given as well because. uh, some elector is read. Some electorates talk, not very loudly. And in that sense, it's more difficult. is much easier to lose concentration if someone read. Or if someone is not very demanding with the voice. Well, is, um. first of all, is a level of. of the language, which is. I found it different from spoken English or maybe English that people may see on at.v., uh, program. In a way that it is much more technical and you need to use specific words in specific context. And that's the only the start of it. It can be difficult to hear what electrodes saying because you are sitting in a large, echoing hall. Speakers may have a strange accents. They may speak too quickly or too quietly. Some might use unfamiliar, technical or academic vocabulary. Christine Reeds teaches at Bell Norwich, a language school in the east of England. I think one of the main problems is actually the, the really difficult skill of listening, listening for the main point, understanding the main point, and processing those main points and actually taking notes at the same time. This is definitely what the students have expressed most difficulty in to me, as a teacher. Does that sound familiar. Well, if you have problems in lectures, what can you do. Skillful listening involves being able to select important information from the rest. Unfortunately, as Simon Williams points out, many speakers have techniques to help guide you through their lecture and to highlight key information. You can often recognize the different bits. different parts of a lecture. By three things. First of all, the lecture of intonation. the sound of their voice is going to fall, is going to get quieter at the end of a topic. Rather like my voices. Phasing and getting quieter now. And then they might use a marker word such as right. Okay. Good. The sort of thing you, you often hear teachers saying in a classroom, in a school classroom. And then there will be a mark of phrase, such as. I'd like to move on now, or. Turning now to or. or, or let's now consider. So the. Speaker is self consciously saying what they're going to do next in, in speech terms. In language terms. So you can think of those markers as sign posts on the journey through the lecture. Good lecturers guide listeners through their talk. Their intonation and stress patterns act as pointers, important information. Falling intonation helps. you know, when a speaker finished one idea or topic and is about to move on to the next. That's a higher pitch. This is, if you like, the spoken equivalent of the full stops and paragraph breaks in a book. Speakers tend to stress important points by speaking more clearly, perhaps a bit louder, more slowly and with greater care. This lecture was originally given by Don Hill of University College London. It focuses on the relationship between wealth and happiness. Now, don't worry too much about the specific content of what he's saying. Listen instead to the way he says it. I'd like you to try and spot any signals that guide you through the talk or help you to identify keypoints. What do you consider to be the most important piece of information here and why. Okay, that brings me to the end of that second main part of this little talk on some contrasts with traditional economic views. Right, let's go on to the third part, which I've called. what price, happiness. So I now want to raise some questions about happiness. The effect of the questions will be, I think, to cast further doubt, the speaker has reached the end of section two of his talk. His intonation falls. the picture of music of his voice get lower. And he gets quieter before he introduces the next section. His intonation then rises again. He gets louder and speaks carefully as he highlights what he considers to be an important point. And that's the title of the next section of his lecture. What price, happiness. Listen, again. Okay, that brings me to the end of that second main part of this little talk on some contrasts with traditional economic views. Right, let's go on to the third part, which I've called. what price, happiness. So I now want to raise some questions about happiness. The speaker also uses a number of what Simon Williams calls marker phrases, such as That brings me to the end of the second part of this little talk and the. Let's go on to the third part. These are like many announcements or sign posts, within the lecture. You'll hear more examples of these markers, as the lecture continues. The speaker has a number of questions. But what's the most important question he wants to ask. Listen out for clues in his intonation and stress. So I now want to raise some questions about happiness. The effect of the questions will be, I think, to cast further doubt on traditional views of the desirability of uncontrolled economic growth. The first question is this. Can we really make a direct link between cash and happiness. We've seen that the traditional economists view of rational economic man is the Detroit speaker invited listeners to focus on this important question. Can we make a direct link between cash and happiness. His intonation. The higher note, the slower speed and careful stress. All indicate that we should pay attention to these words. Two marker phrases. So I now want to raise some questions. And. The first question is this. Also, point us in this direction. and that brings us to the end of today's program. And these are the three key points. Understanding the purpose of a lecture can help students know where to focus attention. Preparation can help students understand the language and content of a lecture. And we've demonstrated ways in which speakers can guide listeners to important information, using intonation, stress, and marker fries. Join Susan Fern again next time for more academic listening. That was talk about English fromb.b.c.. learning English dot com.
+The.
+
+The.
+
+B.b.c.learning English dot com presents.
+
+Talk about English, A series of radio features is support your English language studies.
+
+It's time for academic listening, a series for students at English speaking universities.
+
+Many students find that lectures are the most daunting aspect of their university life.
+
+In this program.
+
+we'll start to look at a range of techniques to make listening to lectures easier with presenter Susan Fern and members of the Bbc.
+
+Well, service class of two thousand and one.
+
+Taxes, quality of life and happiness.
+
+In this talk.
+
+I will first note a recent political emphasis on quality of life.
+
+Secondly, I will suggest that this contrasts with economic growth as a main or the main concern of government and with a view of the interview, like me, wished you'd had a certain chance to hear those university lectures.
+
+Taxes, quality of life and happiness.
+
+In this talk.
+
+I will first note a recent political emphasis on quality of life.
+
+Secondly, I will suggest.
+
+sadly, it's never quite like that in real life.
+
+You can reread a book.
+
+You can replay a cassette, but you can't rewind a lecturer.
+
+The main point of a lecture for students must be to acquire more information on a topic in a.
+
+Simon Williams teaches English in the Language Centre at University College London.
+
+Of course, they could get a photo copy from another student later, not bother to turn up.
+
+But it's one way of knowing how the subject is viewed.
+
+how it's considered by people in your department, whether it's thought to rather old fashioned, perhaps, or crucial and very, very modern.
+
+So it's seeing where it fits into the whole subject.
+
+Two of us.
+
+Lectures can be important.
+
+social occasions there.
+
+a chance to meet with the other students on your course.
+
+But they're also an important way of getting an overview of your subject or particular element of your course.
+
+This is something you may not be able to achieve through self study or by reading someone else's notes.
+
+University teachers also have specific aims and objectives, when they lecture.
+
+Simon Williams, again.
+
+The purpose of a lecture is probably to stimulate students in going to do work by themselves.
+
+The end result of a course must be to try to make a student autonomous so that they are happy in finding things out for themselves and not being given things that they accept uncritically.
+
+So learners need to know that that's the aim, the probable aim of the course of academic study that they'll be able to be individual learners and independent learners.
+
+So a lecturer will aim to present.
+
+perhaps as part of a topic and stimulate the student to want to find out more, and then maybe a very good reason to do that, if perhaps they've got to do a written assignment on that topic.
+
+So that's another reason for paying attention.
+
+But paying attention can only happen if you know what to pay attention to.
+
+One can't pay.
+
+Everything all at the same time.
+
+Understanding the any more purpose of the lecture helps you decide where to focus your attention.
+
+This is useful because you can't concentrate on everything at once.
+
+You may already be using large amounts of mental energy to cope with other problems.
+
+as these students can confirm.
+
+Actually, I think that there are difference not only in the problem of the accent.
+
+Or in the way of talking.
+
+But, uh, in the way in which the, the, the class is given, the lecture is, is given as well because.
+
+uh, some elector is read.
+
+Some electorates talk, not very loudly.
+
+And in that sense, it's more difficult.
+
+is much easier to lose concentration if someone read.
+
+Or if someone is not very demanding with the voice.
+
+Well, is, um.
+
+first of all, is a level of.
+
+of the language, which is.
+
+I found it different from spoken English or maybe English that people may see on at.v., uh, program.
+
+In a way that it is much more technical and you need to use specific words in specific context.
+
+And that's the only the start of it.
+
+It can be difficult to hear what electrodes saying because you are sitting in a large, echoing hall.
+
+Speakers may have a strange accents.
+
+They may speak too quickly or too quietly.
+
+Some might use unfamiliar, technical or academic vocabulary.
+
+Christine Reeds teaches at Bell Norwich, a language school in the east of England.
+
+I think one of the main problems is actually the, the really difficult skill of listening, listening for the main point, understanding the main point, and processing those main points and actually taking notes at the same time.
+
+This is definitely what the students have expressed most difficulty in to me, as a teacher.
+
+Does that sound familiar.
+
+Well, if you have problems in lectures, what can you do.
+
+Skillful listening involves being able to select important information from the rest.
+
+Unfortunately, as Simon Williams points out, many speakers have techniques to help guide you through their lecture and to highlight key information.
+
+You can often recognize the different bits.
+
+different parts of a lecture.
+
+By three things.
+
+First of all, the lecture of intonation.
+
+the sound of their voice is going to fall, is going to get quieter at the end of a topic.
+
+Rather like my voices.
+
+Phasing and getting quieter now.
+
+And then they might use a marker word such as right.
+
+Okay.
+
+Good.
+
+The sort of thing you, you often hear teachers saying in a classroom, in a school classroom.
+
+And then there will be a mark of phrase, such as.
+
+I'd like to move on now, or.
+
+Turning now to or.
+
+or, or let's now consider.
+
+So the.
+
+Speaker is self consciously saying what they're going to do next in, in speech terms.
+
+In language terms.
+
+So you can think of those markers as sign posts on the journey through the lecture.
+
+Good lecturers guide listeners through their talk.
+
+Their intonation and stress patterns act as pointers, important information.
+
+Falling intonation helps.
+
+you know, when a speaker finished one idea or topic and is about to move on to the next.
+
+That's a higher pitch.
+
+This is, if you like, the spoken equivalent of the full stops and paragraph breaks in a book.
+
+Speakers tend to stress important points by speaking more clearly, perhaps a bit louder, more slowly and with greater care.
+
+This lecture was originally given by Don Hill of University College London.
+
+It focuses on the relationship between wealth and happiness.
+
+Now, don't worry too much about the specific content of what he's saying.
+
+Listen instead to the way he says it.
+
+I'd like you to try and spot any signals that guide you through the talk or help you to identify keypoints.
+
+What do you consider to be the most important piece of information here and why.
+
+Okay, that brings me to the end of that second main part of this little talk on some contrasts with traditional economic views.
+
+Right, let's go on to the third part, which I've called.
+
+what price, happiness.
+
+So I now want to raise some questions about happiness.
+
+The effect of the questions will be, I think, to cast further doubt, the speaker has reached the end of section two of his talk.
+
+His intonation falls.
+
+the picture of music of his voice get lower.
+
+And he gets quieter before he introduces the next section.
+
+His intonation then rises again.
+
+He gets louder and speaks carefully as he highlights what he considers to be an important point.
+
+And that's the title of the next section of his lecture.
+
+What price, happiness.
+
+Listen, again.
+
+Okay, that brings me to the end of that second main part of this little talk on some contrasts with traditional economic views.
+
+Right, let's go on to the third part, which I've called.
+
+what price, happiness.
+
+So I now want to raise some questions about happiness.
+
+The speaker also uses a number of what Simon Williams calls marker phrases, such as That brings me to the end of the second part of this little talk and the.
+
+Let's go on to the third part.
+
+These are like many announcements or sign posts, within the lecture.
+
+You'll hear more examples of these markers, as the lecture continues.
+
+The speaker has a number of questions.
+
+But what's the most important question he wants to ask.
+
+Listen out for clues in his intonation and stress.
+
+So I now want to raise some questions about happiness.
+
+The effect of the questions will be, I think, to cast further doubt on traditional views of the desirability of uncontrolled economic growth.
+
+The first question is this.
+
+Can we really make a direct link between cash and happiness.
+
+We've seen that the traditional economists view of rational economic man is the Detroit speaker invited listeners to focus on this important question.
+
+Can we make a direct link between cash and happiness.
+
+His intonation.
+
+The higher note, the slower speed and careful stress.
+
+All indicate that we should pay attention to these words.
+
+Two marker phrases.
+
+So I now want to raise some questions.
+
+And.
+
+The first question is this.
+
+Also, point us in this direction.
+
+and that brings us to the end of today's program.
+
+And these are the three key points.
+
+Understanding the purpose of a lecture can help students know where to focus attention.
+
+Preparation can help students understand the language and content of a lecture.
+
+And we've demonstrated ways in which speakers can guide listeners to important information, using intonation, stress, and marker fries.
+
+Join Susan Fern again next time for more academic listening.
+
+That was talk about English fromb.b.c..
+
+learning English dot com.
 
 #### 译文:
 
